@@ -1,9 +1,13 @@
 ### Hi there 👋
 
 Name: Lindsay 
+
 Pronouns: They/She
+
 Nickname: Lenny
+
 Cat: PJ Apricat Miller aka "The Cowboy Kid"
+
 Fun Fact: My parents entered me in a Diaper Derby when I was a baby.  It took place at a Walmart and I won.
 
 <!--
