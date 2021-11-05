@@ -1,6 +1,6 @@
 # Lindsay Erin Miller  
 
-## (919) 454-5342 | lem7931@nyu.edu 
+## lem7931@nyu.edu 
 
 ###### Career Objective  
 
